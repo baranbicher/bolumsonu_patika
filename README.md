@@ -1,1 +1,1 @@
-"#b”lm_sonu_patika" 
+# BÃ–LÃœM SONU PATÄ°KA 
